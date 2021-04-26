@@ -1,0 +1,1 @@
+# res-6-011-the-art-of-insight-in-science-and-engineering-mastering-c_2c70ab416ac2458eadc9a54cd700daee
